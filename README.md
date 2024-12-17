@@ -1,1 +1,14 @@
+![image](https://media.discordapp.net/attachments/1161332539408011284/1318388703902826608/tumblr_882d97cecdb3403cd739ccc6b013f3a1_1af7f690_1280.png?ex=676224a9&is=6760d329&hm=6939235d790ebb660c9e1f10b082a01f291294a55d27a9246b7a5c3905b6d1c9&)
 ![image](https://cdn.discordapp.com/attachments/1161332539408011284/1318386586739671041/Untitled753_20241217091728.png?ex=676222b0&is=6760d130&hm=ddababae599f994bafbefa721814235bbffde7cc0506b9c15d711f6d2ecfa345&)
+
+__☰ Menu | > Next__
+
+
+vay/aeli ﹕ any prns
+
+5teen ゛ enfp
+
+
+![image](https://media.discordapp.net/attachments/1161332539408011284/1318387426560835655/tumblr_18b2293e3da75b8a4395aaf66386db5a_a30ec953_1280.png?ex=67622378&is=6760d1f8&hm=7b27c6657cff975263f6c8b6f354f77513ac9463a473a689ccc7aa02599639aa&)
+
+interact 
