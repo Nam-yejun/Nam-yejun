@@ -4,11 +4,15 @@
 __☰ Menu | > Next__
 
 
-vay/aeli ﹕ any prns
+﹫ `vay/aeli` ﹕ any prns
 
-5teen ゛ enfp
+5teen ゛ `enfp` ノ
 
 
-![image](https://media.discordapp.net/attachments/1161332539408011284/1318387426560835655/tumblr_18b2293e3da75b8a4395aaf66386db5a_a30ec953_1280.png?ex=67622378&is=6760d1f8&hm=7b27c6657cff975263f6c8b6f354f77513ac9463a473a689ccc7aa02599639aa&)
+![image](https://media.discordapp.net/attachments/1161332539408011284/1318428762697760829/tumblr_7ebabb087dc871de76b59c8d271c4dc6_5a697641_1280.png?ex=676249f8&is=6760f878&hm=7bafd8ea7d275a86e42b6a9ca9c2ad61ec8cac5d324f84de4f542a64048638fb&)
 
-interact 
+`⠀︵⠀interact⠀◌Ⳋ𝅄` plave, idv, kpop, jpop, ado, alnst, niji (maybe), vocaloids, anime
+
+`⠀︵⠀dni ⠀◌Ⳋ𝅄` predators, homophobes, racists, problematic people in general
+
+![image](https://media.discordapp.net/attachments/1161332539408011284/1318428750223904849/tumblr_1d04d9d73b33d21437132c7124e8c8a8_c5a0d027_1280.png?ex=676249f5&is=6760f875&hm=10e50b808182402f882a651e550cb324db108d751bdce5af71f126625e0c11ec&)
