@@ -18,7 +18,7 @@
 
  <p align="center">
   $${\textsf{\color{#7D8AA3} matt / yuㅤhe only}}$$
-  $${\textsf{\color{#7D8AA3} kpop(plv, zb1, iz*one, bnd, irisé etc etc.)}}$$
+  $${\textsf{\color{#7D8AA3} likes: kpop (zb1, plv, nmixx, irisé, iz*one, jo yuri, astro, bnd, twice, xlov +++ and more), writing, manwha/manga/manhuas, alnst, rvl, sg, vtubers, genshin, pt, idv, ++ more that i cant think of}}$$
 
   <br><br>
 
