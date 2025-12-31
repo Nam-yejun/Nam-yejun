@@ -17,9 +17,9 @@
  <br><br>
 
  <p align="center">
-$${\textsf{\color{#7D8AA3} matt / yuㅤhe only}}$$
-<p align="center">
-$${\textsf{\color{#7D8AA3} kpop(plv, zb1, iz*one, bnd, irisé etc e
+  $${\textsf{\color{#7D8AA3} matt / yuㅤhe only}}$$
+  $${\textsf{\color{#7D8AA3} kpop(plv, zb1, iz*one, bnd, irisé etc etc.)}}$$
+
     
 
  
